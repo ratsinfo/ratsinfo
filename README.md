@@ -19,7 +19,7 @@
 
 (тык картинку) / (poke a picture)
 
-[![](https://i.postimg.cc/PrvNZDmY/1.png)](https://t.me/myshinoelogovo/297)
+[![](https://i.postimg.cc/PrvNZDmY/1.png)](https://t.me/myshinoelogovo)
 
 <p align="center">
  <img src="https://i.postimg.cc/rmN4hz3G/2024-07-26-214433508.png">
