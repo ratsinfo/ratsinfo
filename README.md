@@ -11,15 +11,15 @@
  </p>
 
 <p align="center">
- <img src="https://i.postimg.cc/rmkSSSjs/2.png"> 
- <img src="https://i.postimg.cc/x8X2fbmj/1.png">
+ <img src="https://i.postimg.cc/Wp6J2T2S/1.png"> 
+ <img src="https://i.postimg.cc/fbJrN8mj/2.png">
  </p>
 
 место жительства / habitat
 
 (тык картинку) / (poke a picture)
 
-[![](https://i.postimg.cc/PrvNZDmY/1.png)](https://t.me/myshinoelogovo)
+[![](https://i.postimg.cc/PrvNZDmY/1.png)](https://t.me/ttotnm)
 
 <p align="center">
  <img src="https://i.postimg.cc/rmN4hz3G/2024-07-26-214433508.png">
