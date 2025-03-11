@@ -7,6 +7,10 @@
  </p>
 
  <p align="center">
+ Sebastian Solace my beloved.
+ </p>
+
+ <p align="center">
  <img src="https://i.postimg.cc/59vzKKd9/2024-07-26-214701733.png">
  </p>
 
