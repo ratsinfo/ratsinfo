@@ -15,8 +15,7 @@
  </p>
 
 <p align="center">
- <img src="https://i.postimg.cc/Wp6J2T2S/1.png"> 
- <img src="https://i.postimg.cc/fbJrN8mj/2.png">
+ <img src="https://i.postimg.cc/Wp6J2T2S/1.png">
  </p>
 
 место жительства / habitat
